@@ -1,16 +1,15 @@
-## Hi there 👋
+## Ello! :D ☆
 
-<!--
-**Nothingspecialforthis/Nothingspecialforthis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+✦⋆𓆩✧𓆪⋆✦
 
-Here are some ideas to get you started:
+☆ I always love to cud (c+h) with people! please always cuddle.  I don't mind at all.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+♡ Please respect to make space for friends that could possibly join in!
+
+☆ Reading my rentry (made by my AMAZING FRIEND, helps make you learn more abt me :D
+
+♤ I LOVE Jing Yuan, Blade, and Madeleine cookie a lot :3..
+
+♧ Please draw on my strawpage ❤️..
+
+~~ 𓆩⚝𓆪
