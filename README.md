@@ -8,7 +8,7 @@
 
 ☆ Reading my rentry (made by my AMAZING FRIEND, helps make you learn more abt me :D
 
-♤ I LOVE Jing Yuan, Blade, and Madeleine cookie a lot :3..
+♤ I LOVE Jing Yuan, Blade, Madeleine Cookie, and Baekcheon :)
 
 ♧ Please draw on my strawpage ❤️..
 
